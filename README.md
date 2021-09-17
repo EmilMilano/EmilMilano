@@ -2,7 +2,7 @@
 - 👀 I’m interested Programming
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on nothing at the moment.
-- 📫 How to reach me IMI#4213 at Discord, emilmilano@tuta.io Email.
+- 📫 How to reach me IMI#4213 at Discord, emilmilano@tuta.io Email(Unavailable)
 - (☞ﾟヮﾟ)☞
 
 
